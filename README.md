@@ -26,7 +26,7 @@ My favorite character is **Monkey D. Luffy** because he is funny, brave, and alw
 
 ### My Rating
 
-I would rate this series **10/10** because I enjoy watching it and I never get bored of its story.
+I would rate this series **100/10** because I enjoy watching it and I never get bored of its story.
 
 ### More Information
 
